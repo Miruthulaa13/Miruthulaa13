@@ -1,5 +1,5 @@
-## Hi there uwuuwuwuwuwuwuwuwuwuwuwuwuwuwuwuwuw👋
-# They Call me the Cow🐄
+## Hi there!
+
 ---
 
 <!--
